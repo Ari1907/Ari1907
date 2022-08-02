@@ -1,7 +1,6 @@
 ### Hi there 👋
 
-My name is Ariadna, but please call me Ari. I'm in my twenties, I'm a student at IPN, and I hope to be in a couple of years an engineer. 
-**Ari1907/Ari1907** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is Ariadna, but please call me Ari. I'm in my twenties, I'm a student at IPN, and I hope to be in a couple of years an engineer that could help her country and his family. 
 
 ![](https://www.elfinanciero.com.mx/resizer/7XFy8rvvWbs0bE6px9z1eTC0cCk=/1440x810/filters:format(jpg):quality(70)/cloudfront-us-east-1.images.arcpublishing.com/elfinanciero/O6UC5XMEIJBV3ESXHULEWFEK2E.jpg) 
 
