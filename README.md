@@ -13,5 +13,6 @@ My name is Ariadna, but please call me Ari. I'm in my twenties, I'm a student at
 - 💬 Ask me about enviromental topics, a little bit of biology or chemestry and about what to do with the garbage, maybe it could be helpful. 
 - 📫 How to reach me: ¿?
 - 😄 Pronouns: she/her/his
+
 ⚡ 
 
